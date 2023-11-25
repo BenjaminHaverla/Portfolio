@@ -51,7 +51,7 @@
 
 # Current work/internship
 
-- Direktorenhaus (current work)
+- [Direktorenhaus](https://www.direktorenhaus.com) (current internship)
 - Ai video labs (current work)
 - Animation/Film instructor for kid's camp (one week per year)
 
