@@ -21,9 +21,21 @@
 
 - [**"The Last Letter trailer"**](https://www.youtube.com/watch?v=Np_MfliZ2Rw) and [**"The Last Letter short film"**](https://filmfreeway.com/projects/2082837) (2021)
 
+- [**Videos for Maria Dudova - financial advisor in Bratislava 1**](https://www.youtube.com/watch?v=1KBxY22GWok) (2021)
+
+- [**Videos for Maria Dudova - financial advisor in Bratislava 2**](https://www.youtube.com/watch?v=uS6Ppwye3s4) (2021)
+
+- [**Videos for Maria Dudova - financial advisor in Bratislava 3**](https://www.youtube.com/watch?v=UsmibpPA0Bg) (2021)
+
+- [**Videos for Maria Dudova - financial advisor in Bratislava 4**](https://www.youtube.com/watch?v=gryimh1fu9o) (2021)
+
 # New Era of Featured Projects
 
 - [**"UKUPHILA"**](https://filmfreeway.com/projects/2382005) (2021)
+
+- [**"SEANSA"**](https://www.youtube.com/watch?v=rrN2c0EgOkI) (2022)
+
+- [**"Bees"**](https://www.youtube.com/watch?v=8TpoLYfG1NM) (2022)
 
 - [**"Zombie vs. Ninja"**](https://filmfreeway.com/projects/2504641) (2022)
 
