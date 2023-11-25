@@ -68,4 +68,6 @@ The main goal is to save time for marketing companies through personalized **AI 
 
 - [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year)
 
+![Camp](Camp/C_1.png) ![Camp](Camp/C_2.png) ![Camp](Camp/C_3.png)
+
 ## [BACK TO THE MAIN PAGE](https://github.com/BenjaminHaverla/First-impression-presentation.git)
