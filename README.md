@@ -43,11 +43,11 @@
 
 # Background acting in movies:
 
-- [The Performance](https://www.imdb.com/title/tt15300212/)
+- [The Performance](https://www.imdb.com/title/tt15300212/) (2021)
 
-- [Les Loups-Garous](https://www.praguereporter.com/home/2023/7/6/netflix-adaptation-of-werewolf-party-game-starring-jean-reno-now-filming-in-prague/) (French language)
+- [The Tattooist of Auschwitz](https://www.imdb.com/title/tt9022422/) (2022)
 
-- [The Tattooist of Auschwitz](https://www.imdb.com/title/tt9022422/)
+- [Les Loups-Garous](https://www.praguereporter.com/home/2023/7/6/netflix-adaptation-of-werewolf-party-game-starring-jean-reno-now-filming-in-prague/) (2023) (French language)
 
 # Current work/internship
 
