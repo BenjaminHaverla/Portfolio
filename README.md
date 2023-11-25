@@ -13,7 +13,7 @@
   
 - [**"1 DAY"**](https://www.youtube.com/watch?v=v6IRnz5T7lA) (2019 – I was 18 years old) –> Live-action short film. We were awarded 2nd place in the Košice Slovak competition.
 
-- - [**"Life's Gift"**](https://www.youtube.com/watch?v=WEEqA0LmaMo) (2018) –> Minecraft animated short film. Awarded 3rd place in the Bratislava Slovak competition.
+- [**"Life's Gift"**](https://www.youtube.com/watch?v=WEEqA0LmaMo) (2018) –> Minecraft animated short film. Awarded 3rd place in the Bratislava Slovak competition.
 
 - [**"Power of Friendship"**](https://www.youtube.com/watch?v=0tEriU-heds) (2019) –> Minecraft animated short film. Awarded 2nd place in the Bratislava Slovak competition.
 
