@@ -7,7 +7,7 @@
 - [**"Life with ISIC"**](https://www.youtube.com/watch?v=07TXVp8rjss&t=9s) (2017 – I was 16 years old) –> Music video about ISIC student card. We were awarded 1st place in the Košice Slovak competition. Thanks to this, I had the opportunity to be the main actor in short ISIC ads:
 - [**Add Performance 1**](https://www.youtube.com/watch?v=N6iNbw7amuk),
 - [**Add Performance 2**](https://www.youtube.com/watch?v=PuG0568k_2E),
-- [**Add Performance 3**](https://www.youtube.com/watch?v=VnI_E2yEMJE)
+- [**Add Performance 3**](https://www.youtube.com/watch?v=VnI_E2yEMJE).
 
 - [**"Mystery House trailer"**](https://www.youtube.com/watch?v=FhtPwFmSkp4) (2017 – I was 16 years old) –> We were awarded 1st place in Czechoslovak competition.
   
