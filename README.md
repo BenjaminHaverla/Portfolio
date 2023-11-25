@@ -53,7 +53,7 @@
 
 - [Direktorenhaus](https://www.direktorenhaus.com) (current internship)
 
-![text_description](Direktorenhaus/D_1.png) ![Photo](Direktorenhaus/D_2.png)
+![text_description](Direktorenhaus/D_1.png) ![Photo](Direktorenhaus/D_2.png) ![Photo](Direktorenhaus/D_3.png) ![Photo](Direktorenhaus/D_4.png)
 
 - [Ai video labs](https://cz.linkedin.com/in/jakub-landa) (current work)
 - [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year)
