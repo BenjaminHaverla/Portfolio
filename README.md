@@ -27,7 +27,7 @@
 
 - [**"Zombie vs. Ninja"**](https://filmfreeway.com/projects/2504641) (2022)
 
-– [**"Presentation of the art department for the 100th anniversary"**](https://filmfreeway.com/projects/2606470) (2022)
+- [**"Presentation of the art department for the 100th anniversary"**](https://filmfreeway.com/projects/2606470) (2022)
 
 - Direktorenhaus (current work)
 - Ai video labs (current work)
