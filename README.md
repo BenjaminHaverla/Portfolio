@@ -1,4 +1,4 @@
-# Life-Time Featured Projects
+# Life-Time Featured Old Projects
 
 - [**"We want to live!"**](https://www.youtube.com/watch?v=3V1NKcxF2OI) (2015 – 14 years old) –> I entered my first animated LEGO short film into a Bratislava Slovak competition. We were awarded with 3rd place. I believe that we won thanks to the cooperation of my friends.
   
@@ -12,6 +12,10 @@
 - [**"Mystery House trailer"**](https://www.youtube.com/watch?v=FhtPwFmSkp4) (2017 – I was 16 years old) –> We were awarded 1st place in Czechoslovak competition.
   
 - [**"1 DAY"**](https://www.youtube.com/watch?v=v6IRnz5T7lA) (2019 – I was 18 years old) –> Live-action short film. We were awarded 2nd place in the Košice Slovak competition.
+
+- [**"The Inside trailer"**](https://www.youtube.com/watch?v=C6EL4HapASA) and [**"The Inside short film"**](https://filmfreeway.com/projects/1883986) (2020)
+
+- [**"The Last Letter trailer"**](https://www.youtube.com/watch?v=Np_MfliZ2Rw) and [**"The Last Letter short film"**](https://filmfreeway.com/projects/2082837) (2021) 
 
 
 - Direktorenhaus (current work)
