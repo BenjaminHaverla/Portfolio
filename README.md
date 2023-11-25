@@ -41,6 +41,14 @@
 
 - [**"Presentation of the art department for the 100th anniversary"**](https://filmfreeway.com/projects/2606470) (2022)
 
+# Background actor in movies:
+
+- [The Performance](https://www.imdb.com/title/tt15300212/)
+
+- [Les Loups-Garous](https://www.praguereporter.com/home/2023/7/6/netflix-adaptation-of-werewolf-party-game-starring-jean-reno-now-filming-in-prague/) (French language)
+
+- [The Tattooist of Auschwitz](https://www.imdb.com/title/tt9022422/)
+
 - Direktorenhaus (current work)
 - Ai video labs (current work)
 - Animation/Film instructor for kid's camp (one week per year)
