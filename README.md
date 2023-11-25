@@ -41,7 +41,7 @@
 
 - [**"Presentation of the art department for the 100th anniversary"**](https://filmfreeway.com/projects/2606470) (2022)
 
-# Background actor in movies:
+# Background acting in movies:
 
 - [The Performance](https://www.imdb.com/title/tt15300212/)
 
