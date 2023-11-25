@@ -4,12 +4,14 @@
   
 - [**"World of Plastic"**](https://www.youtube.com/watch?v=VX3JhoW89X4) (2016 – 15 years old) –> Animated LEGO short film. We were awarded 1st place in the Bratislava Slovak competition.
 
-- [**"Life with ISIC"**](https://www.youtube.com/watch?v=07TXVp8rjss&t=9s) (2017 – I was 16 years old) –> Music video about ISIC student card. We were awarded 1st place in the Košice Slovak competition. Thanks to this, I had the opportunity to be the main actor in short ISIC ads.
+- [**"Life with ISIC"**](https://www.youtube.com/watch?v=07TXVp8rjss&t=9s) (2017 – I was 16 years old) –> Music video about ISIC student card. We were awarded 1st place in the Košice Slovak competition. Thanks to this, I had the opportunity to be the main actor in short ISIC ads:
 - [**Add Performance 1**](https://www.youtube.com/watch?v=N6iNbw7amuk),
 - [**Add Performance 2**](https://www.youtube.com/watch?v=PuG0568k_2E),
 - [**Add Performance 3**](https://www.youtube.com/watch?v=VnI_E2yEMJE)
+
+- [**"Mystery House trailer"**](https://www.youtube.com/watch?v=FhtPwFmSkp4) (2017 – I was 16 years old) –> We were awarded 1st place in Czechoslovak competition.
   
-- "1 DAY" (I was 18 years old) –> Live-action short film. We were awarded 2nd place in the Košice Slovak competition.
+- [**"1 DAY"**](https://www.youtube.com/watch?v=v6IRnz5T7lA) (2019 – I was 18 years old) –> Live-action short film. We were awarded 2nd place in the Košice Slovak competition.
 
 
 - Direktorenhaus (current work)
