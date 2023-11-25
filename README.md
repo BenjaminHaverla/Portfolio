@@ -63,6 +63,9 @@ During my internship, I am helping the company produce better photos and videos 
 ![Photo](Direktorenhaus/D_9.png)
 
 - [Ai video labs](https://cz.linkedin.com/in/jakub-landa) (current work)
+
+The main goal is to save time for marketing companies through personalized **AI videos**. We're searching for an easy and fast workflow + we produce videos.
+
 - [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year)
 
 ## [BACK TO THE MAIN PAGE](https://github.com/BenjaminHaverla/First-impression-presentation.git)
