@@ -57,7 +57,10 @@ During my internship, I am helping the company produce better photos and videos 
 
 ![text_description](Direktorenhaus/D_1.png) ![Photo](Direktorenhaus/D_2.png) ![Photo](Direktorenhaus/D_3.png) 
 ![Photo](Direktorenhaus/D_4.png) ![Photo](Direktorenhaus/D_5.png) ![Photo](Direktorenhaus/D_6.png)
-![Photo](Direktorenhaus/D_7.png) ![Photo](Direktorenhaus/D_8.png) ![Photo](Direktorenhaus/D_9.png)
+![Photo](Direktorenhaus/D_7.png) ![Photo](Direktorenhaus/D_8.png) 
+
+#### Still photo from the scene 
+![Photo](Direktorenhaus/D_9.png)
 
 - [Ai video labs](https://cz.linkedin.com/in/jakub-landa) (current work)
 - [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year)
