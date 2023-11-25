@@ -52,7 +52,7 @@
 # Current work/internship
 
 - [Direktorenhaus](https://www.direktorenhaus.com) (current internship)
-- Ai video labs (current work)
-- Animation/Film instructor for kid's camp (one week per year)
+- [Ai video labs](https://cz.linkedin.com/in/jakub-landa) (current work)
+- [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year)
 
 ## [BACK TO THE MAIN PAGE](https://github.com/BenjaminHaverla/First-impression-presentation.git)
