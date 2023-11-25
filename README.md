@@ -66,8 +66,11 @@ During my internship, I am helping the company produce better photos and videos 
 
 The main goal is to save time for marketing companies through personalized **AI videos**. We're searching for an easy and fast workflow + we produce videos.
 
-- [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year)
+- [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year):
 
 ![Camp](Camp/C_1.png) ![Camp](Camp/C_2.png) ![Camp](Camp/C_3.png)
+![Camp](Camp/C_4.png) ![Camp](Camp/C_5.png) ![Camp](Camp/C_6.png)
+![Camp](Camp/C_7.png) ![Camp](Camp/C_8.png) ![Camp](Camp/C_9.png)
+![Camp](Camp/C_10.png)
 
 ## [BACK TO THE MAIN PAGE](https://github.com/BenjaminHaverla/First-impression-presentation.git)
