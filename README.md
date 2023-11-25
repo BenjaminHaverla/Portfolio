@@ -13,10 +13,21 @@
   
 - [**"1 DAY"**](https://www.youtube.com/watch?v=v6IRnz5T7lA) (2019 – I was 18 years old) –> Live-action short film. We were awarded 2nd place in the Košice Slovak competition.
 
+- - [**"Life's Gift"**](https://www.youtube.com/watch?v=WEEqA0LmaMo) (2018) –> Minecraft animated short film. Awarded 3rd place in the Bratislava Slovak competition.
+
+- [**"Power of Friendship"**](https://www.youtube.com/watch?v=0tEriU-heds) (2019) –> Minecraft animated short film. Awarded 2nd place in the Bratislava Slovak competition.
+
 - [**"The Inside trailer"**](https://www.youtube.com/watch?v=C6EL4HapASA) and [**"The Inside short film"**](https://filmfreeway.com/projects/1883986) (2020)
 
-- [**"The Last Letter trailer"**](https://www.youtube.com/watch?v=Np_MfliZ2Rw) and [**"The Last Letter short film"**](https://filmfreeway.com/projects/2082837) (2021) 
+- [**"The Last Letter trailer"**](https://www.youtube.com/watch?v=Np_MfliZ2Rw) and [**"The Last Letter short film"**](https://filmfreeway.com/projects/2082837) (2021)
 
+# New Era of Featured Projects
+
+- [**"UKUPHILA"**](https://filmfreeway.com/projects/2382005) (2021)
+
+- [**"Zombie vs. Ninja"**](https://filmfreeway.com/projects/2504641) (2022)
+
+– [**"Presentation of the art department for the 100th anniversary"**](https://filmfreeway.com/projects/2606470) (2022)
 
 - Direktorenhaus (current work)
 - Ai video labs (current work)
